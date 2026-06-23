@@ -50,5 +50,31 @@ My Code: Works perfectly but looks like a plate of spaghetti. > Me: Quietly type
 ---
 💡 *“Don't let anyone tell you how much cake is too much cake.”*
 
-**Stay tuned to see what drops tomorrow for Day 4! Keep supporting the streak!** 🕒
+# 🎯 Day 4: The 1% Battery Workspace 🔋💀
+
+## 💻 Today's Mood: Fighting for My Life (and My Commit)
+
+আজকে যখন চার্জার অনেক দূরে, আর কোডের শেষ লাইনটা পুশ করা বাকি... ঠিক তখন ফোনের ১% ব্যাটারির আসল রূপ!
+
+---
+
+### 🖼️ Featured Meme of the Day
+
+> **My phone at 1% battery:** *Fights for its life, stays alive for 45 minutes, streams a whole video.* 🧘‍♂️🔥  
+>   
+> **My phone at 100% battery:** *Drops to 90% just because I looked at it and unlocked the screen.* 📉😭
+
+---
+
+### 📝 Today's Log (Day 4):
+* **Current Phone Status:** Living on a prayer.
+* **Anxiety Level:** 100% (Trying to get the GitHub green dot before it dies).
+* **Battery Efficiency:** Makes no sense, but we take the win!
+* **Streak Status:** 4 Days Strong! 🔥🔥🔥
+
+---
+💡 *“The last 1% of a battery lasts longer than a whole relationship.”*
+
+**See you tomorrow for Day 5! Don't forget to follow and keep the motivation going!** 🕒
+
 
