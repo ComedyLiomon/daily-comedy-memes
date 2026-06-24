@@ -75,6 +75,31 @@ My Code: Works perfectly but looks like a plate of spaghetti. > Me: Quietly type
 ---
 💡 *“The last 1% of a battery lasts longer than a whole relationship.”*
 
-**See you tomorrow for Day 5! Don't forget to follow and keep the motivation going!** 🕒
+# 🎯 Day 4: The 3:00 AM Squad Crisis! 🎮☠️
+
+## 🌌 Today's Mood: Brain vs. PUBG Squad 
+
+আজকে আমাদের ৪ নম্বর দিন! কোডিং আর কেকের পর আজকে একটু ব্যাটল রয়্যাল আর গেমিং লাইফের রাত জাগা ট্র্যাজেডি নিয়ে আজকের মিম।
+
+---
+
+### 🖼️ Featured Meme of the Day
+
+> **My brain at 3:00 AM:** "You need 8 hours of sleep for good health." 🧠🛌  
+>   
+> **Also my brain:** "One more match, your squad is waiting. You can definitely wipe out that boot camp squad this time." 🎮🔫
+
+---
+
+### 📝 Today's Log (Day 4):
+* **Sleep Quality:** RIP 💀
+* **Squad Motivation:** Over 9000! 🚀
+* **Boot Camp Mission:** Failed, but the laughter was real.
+* **Streak Status:** 4 Days Strong and counting! 🔥
+
+---
+💡 *“A late-night match with the squad keeps the stress away... until the morning alarm rings.”*
+
+**See you tomorrow for Day 5! Keep following and don't forget to keep your streak alive too!** 🕒
 
 
