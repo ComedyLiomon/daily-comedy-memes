@@ -156,6 +156,32 @@ My Code: Works perfectly but looks like a plate of spaghetti. > Me: Quietly type
 💡 *“Bedtime is just a suggestion made by people who don't have internet access.”*
 
 **See you tomorrow for Day 7! Keep following to see if I finally get some sleep!** 🕒
+# 🎯 Day 8: The Great Internet Betrayal 🌐💔
+
+## 🐌 Today's Mood: Loading... Loading... still Loading...
+
+আজকে আমাদের মিম চ্যালেঞ্জের ৮ নম্বর দিন! যখন সবচেয়ে গুরুত্বপূর্ণ সময়ে ওয়াইফাই স্পিড ১ কেবিপিএস হয়ে যায়, আর রাউটারের দিকে তাকিয়ে রাগ সামলানো যায় না—আজকের মিমটি সেই চিরন্তন কষ্টের অনুভূতি নিয়ে।
+
+---
+
+### 🖼️ Featured Meme of the Day
+
+> **My WiFi Router during online classes/work:** "I am the flash. Speed is my middle name." ⚡🚄  
+>   
+> **My WiFi Router when I am in the final circle of a PUBG match or downloading a huge update:** "Have you ever wondered how peaceful life was in the 90s with dial-up internet? Let me show you." 🐌🦖
+
+---
+
+### 📝 Today's Log (Day 8):
+* **Internet Speed:** Lower than my GPA.
+* **Patience Level:** Checking the router's antennas every 2 minutes. 📡😡
+* **Ping Status:** 999+ ms (Living in the past).
+* **Streak Status:** 8 Days Unstoppable! 🔥
+
+---
+💡 *“You don't know true anger until your internet dies right when you are about to win.”*
+
+**See you tomorrow for Day 9! Keep following and hope for better bandwidth!** 🕒
 
 
 
