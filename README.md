@@ -266,6 +266,35 @@ My Code: Works perfectly but looks like a plate of spaghetti. > Me: Quietly type
 💡 *“A clean browser is a sign of a psychopath. Real legends live with 500 open tabs.”*
 
 **See you tomorrow for Day 12! Keep following and remember to clear your browser tabs once in a while!** 🕒
+# 🎯 Day 12: The Walking Spoiler Alert! 🚶‍♂️💀
+
+## 📺 Today's Mood: Navigating the Social Media Minefield
+
+আজকে আমাদের মিম চ্যালেঞ্জের ১২ নম্বর দিন! যখন কোনো নতুন সিরিজ বা মুভি দেখার সময় পাননি, কিন্তু ফেসবুক-ইউটিউব স্ক্রোল করতে গেলেই অবধারিতভাবে কোনো বড় স্পয়লার চোখের সামনে চলে আসে—আজকের মিমটি সেই বুক ফাটানো কষ্টের অনুভূতি নিয়ে।
+
+---
+
+### 🖼️ Featured Meme of the Day
+
+> **Me:** "I am finally going to watch the season finale tonight after work! No one can stop me." 🍿🤩  
+>   
+> **Social Media Feed 5 minutes before I log off:** "Can we talk about how crazy it was when the main character died in the first 5 minutes of the finale?!" 📱💣  
+>   
+> **Me:** *Stares blankly at the screen, life purpose temporarily lost.* 🧟‍♂️💔
+
+---
+
+### 📝 Today's Log (Day 12):
+* **Spoiler Defense:** Absolute failure. 🛡️❌
+* **Trust Issues:** Maximum (especially with meme pages).
+* **Current Strategy:** Going completely offline until the watch party is over.
+* **Streak Status:** 12 Days Strong! 🔥🔥🔥
+
+---
+💡 *“The fastest thing in the universe isn't light. It's how quickly a spoiler spreads on the internet.”*
+
+**See you tomorrow for Day 13! Keep following the streak and beware of spoilers!** 🕒
+
 
 
 
